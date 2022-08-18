@@ -1,0 +1,1 @@
+*A internet funciona como a Reprograma na nossa vida, uma rede de apoio, ensino e qualificação de mulheres em todas as suas "versões", que juntas e conectadas umas com as outras vão revolucionar, reprogramar o mundo.*
